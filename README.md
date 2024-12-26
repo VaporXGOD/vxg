@@ -1,2 +1,2 @@
 # VaporXGOD official web 
-([https://discord.gg/HanUjk5UVR]) My server
+[Discord Server](https://discord.gg/HanUjk5UVR)
